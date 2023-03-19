@@ -1,3 +1,3 @@
 # Your Sathi for Internships in Nepal
 
-## On a mission to provide 100+ internships in Nepal to freshers every month
+## On a mission to provide 5,00,000+ internships in Nepal to freshers every year.
